@@ -1,0 +1,1 @@
+One day a monkey was walking through a road and was seeing the children. He was a very naughty and mischevious monkey. He stole a mans hat and ran away. After a while the man offered him some bananas and took his hat back.
